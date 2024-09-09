@@ -10,7 +10,8 @@
 
 ### Резюме
 
-[Ссылка на резюме](https://drive.google.com/file/d/1ABW6S0iXQM3oxb5VT5dZcjEwpPTK3wg7/view?usp=sharing)
+[Ссылка на резюме](https://drive.google.com/file/d/1GqE2Gyj6vKp9OmFlEhPv6Z8AhaoMb97X/view?usp=sharing)  
+[Ссылка на hh](https://barnaul.hh.ru/applicant/resumes/view?resume=b32dae6eff0db216170039ed1f724a6e535349)
 
 ### Портфолио
 
